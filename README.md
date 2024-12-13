@@ -1,1 +1,1 @@
-Rulf Rulf
+Aquecimento global que interferiu na destruição de hiroshima e nagazaki
