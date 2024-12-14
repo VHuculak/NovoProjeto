@@ -1,3 +1,5 @@
 Aquecimento global que interferiu na destruição de hiroshima e nagazaki
 
-Salata, Andre
+Salata, Andre 
+
+2024.
